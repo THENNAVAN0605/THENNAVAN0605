@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects which helps companies\clients to move by data driven path
 - 📫 reach me>> instagram:@thennavan_titan74  youtube:@ARACON_DATA_0605
 - 😄 Pronouns: HE/HIM(STRAIGHTER THAN A POLE)
-- ⚡ Fun fact: FITNESS ADDICT @SLAM_AYAPAKKAM
+- ⚡ Fun fact: FITNESS ADDICT 
 
 <!---
 THENNAVAN0605/THENNAVAN0605 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
